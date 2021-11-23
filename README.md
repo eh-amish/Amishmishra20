@@ -1,5 +1,5 @@
 ### Hi there 👋 ,I'm Amish kumar
-      ------->>>CYBER SECURITY EXPERT
+      -------⌨(ᵒ0ᵒ❁) ⌨(ᵒ0ᵒ)CYBER SECURITY EXPERT/___ /╰(⊡-⊡)و⌨
 - 🔭 I’m currently working on ... **C programming, kali Linux,HTML and networking**
 - 🌱 I’m currently learning ...**C programming, networking,html,kali linux and IP address track**
 - 👯 I’m looking to collaborate on ...**Protecting people's data from hacker attacks.**
