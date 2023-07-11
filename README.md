@@ -8,10 +8,7 @@
 - 📫 How to reach me: ...**amishkumarmishra@gmail.com**
 - ⚡ Fun fact: ...**I am very funny person.**
 
-------->>>>..<a href="https://twitter.com/amishmishra01" target="blank">
-------->>>>..<a href="https://linkedin.com/in/amish kumar mishra" target="blank">
-------->>>>..<a href="https://fb.com/amish mishra" target="blank">
-------->>>>..<a href="https://instagram.com/amish_mishra1" target="blank">
+
 .......
 ......
 ....Languages and Tools:
